@@ -1,2 +1,2 @@
 # hello-world
-My very first repository for i don't exactly know what for (yet)
+Lmao, erasing everything. Ain't nobody read about me :P
